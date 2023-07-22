@@ -1,0 +1,2 @@
+# Amazon-Store-Card
+Selling: -Amazon Store Cards -Amazon Store Cards Method -Amazon Store Cards Gen -Tiktok Followers, Likes -Instagram Followers -Youtube Followers   Shop: https://lilka.sellpass.io/ Use code: 2023 for 5% discount!
